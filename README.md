@@ -1,1 +1,0 @@
-# Scouting2017Take2
